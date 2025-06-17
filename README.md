@@ -1,6 +1,6 @@
 # 🎬 Housefull 5 (2025) - Full HD Hindi Movie Download
 
-![Housefull 5 Poster](https://upload.wikimedia.org/wikipedia/en/7/71/Housefull_5_poster.jpg)
+![Housefull 5 Poster]([https://upload.wikimedia.org/wikipedia/en/7/71/Housefull_5_poster.jpg](https://news24online.com/wp-content/uploads/2025/06/housefull-5-1.jpg))
 
 Get ready to laugh your lungs out! *Housefull 5* is back with even more chaos, drama, and insane fun. The legendary comedy franchise returns with **5 couples**, **1 palace**, and **absolutely 0 logic** — just pure entertainment!
 
@@ -34,8 +34,8 @@ Housefull 5 continues the epic saga of mistaken identities, over-the-top sequenc
 ## 🖼️ Movie Stills
 
 <p float="left">
-  <img src="https://i.ytimg.com/vi/JeUk5AazADo/maxresdefault.jpg" width="45%" />
-  <img src="https://static.toiimg.com/photo/msid-101186116/101186116.jpg" width="45%" />
+  <img src="https://i.ytimg.com/vi/JeUk5AazADo/maxresdefault.jpg](https://images.indianexpress.com/2025/06/Housefull-5.jpg" width="45%" />
+  <img src="https://images.indianexpress.com/2025/06/housefull-5-film-review-1600.jpg" width="45%" />
 </p>
 
 <p float="left">
